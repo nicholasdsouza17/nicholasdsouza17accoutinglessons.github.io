@@ -1,2 +1,1 @@
-# nicholasdsouza17accoutinglessons.github.io
-YouTube video accounting lessons
+# 🎓YouTube video accounting lessons🎓
